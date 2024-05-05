@@ -1,2 +1,0 @@
-# UwU-totem
-### UwU.... yes
